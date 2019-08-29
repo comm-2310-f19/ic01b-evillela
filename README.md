@@ -6,9 +6,8 @@
 
 1. I'm taking this class because _________________________
 
-1. My favorite movie is ___________________
+1. My favorite movie is **The Dark Knight Trilogy**
 
-1. My favorite tv show is _________________
+1. My favorite tv show is **Invader Zim**
 
-1. My favorite YouTube channel is ____________________
-
+1. My favorite YouTube channel is *Be. Busta*
